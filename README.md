@@ -9,7 +9,7 @@ If you are new, this video covers all of the basics. [LINK](https://youtu.be/LLJ
 [LINK](https://www.youtube.com/@ArtisOpus)
 
 ### Cult of Paint
-> Dry, but informative. This is by far my favorite channel. Once you learn the basics, they cover recipes, techniques, and approaches for the intermediate painter that spread accross hundreds of topics. They also do occasional display quality mini' by a Golden Demon winner. 
+> Dry, but informative. This is by far my favorite channel. Once you learn the basics, they cover recipes, techniques, and approaches for the intermediate painter that spread accross hundreds of topics. They also do occasional display quality mini's by a Golden Demon winner. 
 [LINK](https://www.youtube.com/@cultofpaint)
 
 ### Midwinter Minis
